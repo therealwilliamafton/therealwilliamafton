@@ -1,4 +1,4 @@
-yes I fictionkin William Afton, yes I'm an William Afton irl, if youre uncomfortable about it dont talk to me and DONT do comments about it. Yes, I'm mentally ill/srs.
+yes I fictionkin William Afton, yes I'm an William Afton irl, and yes I do believe in Otherkin/Reincarnation and I do believe I'm a William Otherkin, if youre uncomfortable about it dont talk to me and DONT do comments about it. Yes, I'm mentally ill/srs.
 
 I suffer with psychopathy and anger issues, BOTH diagnosed, so have it in mind before becoming my friend
 
