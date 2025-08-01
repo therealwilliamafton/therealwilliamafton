@@ -1,4 +1,6 @@
-yes I fictionkin William Afton, yes I'm an William Afton irl, if youre uncomfortable about it dont talk to me and DONT do comments about it.
+yes I fictionkin William Afton, yes I'm an William Afton irl, if youre uncomfortable about it dont talk to me and DONT do comments about it. Yes, I'm mentally ill/srs.
+
+I suffer with psychopathy and anger issues, BOTH diagnosed, so have it in mind before becoming my friend
 
 ![107062_6efe3be10309c597934678a99731fc92](https://github.com/user-attachments/assets/e8d761ff-5e42-406a-9834-8c7f4bb0261a)
 
