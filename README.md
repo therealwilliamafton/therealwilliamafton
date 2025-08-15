@@ -3,7 +3,7 @@ yes I fictionkin William Afton, yes I'm an William Afton irl, and yes I do belie
 I suffer with psychopathy and anger issues, BOTH diagnosed, so have it in mind before becoming my friend
 and if you ship Willry get the fck away from me, genuinely, it's bloody disgusting, no I don't mind if u ship it but I'll mind if you are using Henry and keeps making ship rpg with me, like, get a life vro and grow up pillock 💔
 
-here are all the William's I kin/irl/reincarnation : Mr.Afton, William Afton, Pinky Pills and canon Dave Miller, Springtrap, Scraptrap, blueycapsules William Afton, blueycapsules Dave Miller, Dr. Henry Miller (DSaF)
+here are all the William's I kin/irl/reincarnation : Mr.Afton, William Afton, Pinky Pills and canon(the silver eyes) Dave Miller, Springtrap, Scraptrap, blueycapsules William Afton, blueycapsules Dave Miller, Dr. Henry Miller (DSaF)
 I also kin both of his representations/agony form, such as : ITP Springonnie and glitchtrap 
 
 ![107062_6efe3be10309c597934678a99731fc92](https://github.com/user-attachments/assets/e8d761ff-5e42-406a-9834-8c7f4bb0261a)
