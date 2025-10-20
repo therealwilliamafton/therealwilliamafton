@@ -6,7 +6,7 @@ and if you ship Willry get the fck away from me, genuinely, it's bloody disgusti
 here are all the William's I kin/irl/reincarnation : Mr.Afton, William Afton, Pinky Pills and canon(the silver eyes) Dave Miller, Springtrap, Scraptrap, blueycapsules William Afton, blueycapsules Dave Miller, Dr. Henry Miller (DSaF), William Afton(Matthew/movie)
 I also kin both of his representations/agony form, such as : ITP Springonnie and glitchtrap 
 
-I also have another kins! which are : Jack Kennedy(DSaF), Funtime Freddy (CTW and Sister Location)
+I also have another kins! which are : Jack Kennedy(DSaF), Funtime Freddy (CTW and Sister Location), Chance, Cesar (TMC) and more!! ^_^
 
 ![107062_6efe3be10309c597934678a99731fc92](https://github.com/user-attachments/assets/e8d761ff-5e42-406a-9834-8c7f4bb0261a)
 
