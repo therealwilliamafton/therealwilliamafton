@@ -5,6 +5,8 @@
 
 yes I fictionkin William Afton, yes I'm an William Afton irl, and yes I do believe in reincarnation and I do believe I'm a William Reincarnation, if youre uncomfortable about it dont talk to me and DONT do comments about it. Yes, I'm mentally ill/srs.
 
+and, before you ask the same question everyone ask me when they see I kin William Afton "So you kill kids" actually? I wish, and honestly? I'd do it, I hate kids. So don't ask these questions even as a joke, it gen makes me mad!
+
 I suffer with psychopathy and anger issues, BOTH diagnosed, so have it in mind before becoming my friend
 and if you ship Willry get the fck away from me, genuinely, it's bloody disgusting, no I don't mind if u ship it but I'll mind if you are using Henry and keeps making ship rpg with me, like, get a life vro and grow up pillock 💔
 
