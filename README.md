@@ -12,6 +12,8 @@ sometimes I feel some phantom pain with springlocks failure, it sounds stupid bu
 I suffer with psychopathy and anger issues, BOTH diagnosed, so have it in mind before becoming my friend
 and if you ship Willry get the fck away from me, genuinely, it's bloody disgusting, no I don't mind if u ship it but I'll mind if you are using Henry and keeps making ship rpg with me, like, get a life vro and grow up pillock 💔
 
+Also, I do not mind doubles, I would love to be friends with people who also kins William Afton and understand why you kin him! So I will mostly like you! Unless you just ""kin""(you DONT) him for Willry/Helliam ships, then dont EVEN THINK ABOUT interacting with me.
+
 <img width="1280" height="1280" alt="3 Sem Título_20251105150929" src="https://github.com/user-attachments/assets/df1dbb2b-d4ea-4e5c-a2eb-09190e8c7e7e" />
 
 
