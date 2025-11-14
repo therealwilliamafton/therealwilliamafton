@@ -1,4 +1,5 @@
-<img width="1280" height="1280" alt="3 Sem Título_20251105152048" src="https://github.com/user-attachments/assets/fbbb8472-e777-4bdc-b15d-aa2da7273ab5" />
+<img width="1280" height="1280" alt="13 Sem Título_20251114184647" src="https://github.com/user-attachments/assets/4153ac7b-91f3-49a1-9ba2-c4a28733cd1c" />
+
 
 
 
@@ -14,7 +15,7 @@ and if you ship Willry get the fck away from me, genuinely, it's bloody disgusti
 
 Also, I do not mind doubles, I would love to be friends with people who also kins William Afton and understand why you kin him! So I will mostly like you! Unless you just ""kin""(you DONT) him for Willry/Helliam ships, then dont EVEN THINK ABOUT interacting with me.
 
-<img width="1280" height="1280" alt="3 Sem Título_20251105150929" src="https://github.com/user-attachments/assets/df1dbb2b-d4ea-4e5c-a2eb-09190e8c7e7e" />
+<img width="1280" height="1280" alt="13 Sem Título_20251114181431" src="https://github.com/user-attachments/assets/f806af9d-f1f5-4062-a8a9-a9a15f79213a" />
 
 
 
