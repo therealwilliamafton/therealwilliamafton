@@ -34,6 +34,7 @@ I also have another kins! which are : Jack Kennedy(DSaF), Funtime Freddy (CTW an
 HAVE SOME OF MINE SKETCHES OF MYSELF!(i draw better on paper w my delicous pencil and markers.)
 
 ![IMG_20251119_185946_070~2](https://github.com/user-attachments/assets/3952d2e5-1bfc-48d7-a5f7-04ec446996db)
-do not use it or repost it, please.
+
+$${\color{purple}Do\ not\ use\ please.}$$
 
 
