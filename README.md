@@ -25,5 +25,15 @@ I also kin both of his representations/agony form, such as : ITP Springbonnie an
 I also have another kins! which are : Jack Kennedy(DSaF), Funtime Freddy (CTW and Sister Location), Chance, Cesar (TMC), Fred (FNAFHS), Springtrap (FNAFHS), Springtrap (S.A.M) and more!! ^_^
 
 
-have another draw of mini me with a big ahh head(first time drawing chibi, idk how to do it?)
-<img width="1280" height="1280" alt="33 Sem Título_20251118194809" src="https://github.com/user-attachments/assets/92051ccd-c6ad-4cd4-94c8-e9af63e32826" />
+
+
+
+
+
+
+HAVE SOME OF MINE SKETCHES OF MYSELF!(i draw better on paper w my delicous pencil and markers.)
+
+![IMG_20251119_185946_070~2](https://github.com/user-attachments/assets/3952d2e5-1bfc-48d7-a5f7-04ec446996db)
+do not use it or repost it, please.
+
+
